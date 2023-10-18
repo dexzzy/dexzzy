@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working studying or asleep.
+- 🔭 I’m currently working ,studying , and or asleep.
   
